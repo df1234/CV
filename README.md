@@ -1,2 +1,2 @@
 # CV
-This CV will be updated periodically. Please contact delia.fuhrmann@kcl.ac.uk if you require an up-to-date version.
+I update this CV periodically. Please contact delia.fuhrmann@kcl.ac.uk if you would like to see an up-to-date version.
